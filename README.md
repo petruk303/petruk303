@@ -1,4 +1,4 @@
-# [Petruk303 - Login Apk Petruk 303 Download Versi Lawas 8.13]
+# [Petruk303 - Login Apk Petruk 303 Download Versi Lawas 8.13](https://9ved.short.gy/jpslot)
 
 ## [DOWNLOAD APK Petruk303](https://apk-depot.s3.ap-northeast-1.amazonaws.com/rap.apk)
 ## [VERSI Petruk303](https://9ved.short.gy/jpslot)
